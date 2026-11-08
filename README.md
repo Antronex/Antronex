@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍💻 Just a chill dev 🧊<br>🚀 Specialized in FiveM & Web Development 🌐
+👨‍💻 Just a chill dev <br> Swimming in the Net 🌐
 
 
 ## 🌐 Socials:
